@@ -8,3 +8,5 @@ Do Want |
 | I want positive thoughts |
 | clear thtoughts |
 | persistence and focus |
+
+What you focus on expands, so let us focus on what we want
