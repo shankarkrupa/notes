@@ -1,4 +1,4 @@
-What we have control over is your own personal ener.
+What we have control over is your own personal energy.
 
 **I have control only on My Energy**
 
