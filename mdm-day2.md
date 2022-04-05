@@ -23,3 +23,21 @@
 >I look forward to starting my day at 5am everyday
 
 * Reading - 10 minutes
+* Exercise - 10 minutes
+
+| Undesirable for my body | Undesirable for my mind | Desirable for body | Desirable for mind |
+| ------------- | ----| --- | --- |
+| sitting idle | hestiation doing what I like | active | <circle> good desires </circle> |
+| | fear | active | <circle> good desires </circle> |
+| | confusion |  |  |
+
+* 2-minute Thank You text
+
+# Assignment #
+* I drop ___ for the next 30 days
+
+* I pick up  ___ for the next 30 days
+ 
+* Four glasses of water, two glasses of warm water and two glass boiled water with half teaspoon Sounf and Jeera (filtered)
+
+* Exercise for 45 minutes today - outdoor
