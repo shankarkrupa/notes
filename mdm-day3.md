@@ -7,6 +7,7 @@
 
 * You are an average of five people you are spending time with
 * Being with confident people increases the confidence
+* # Whatever you want, give it to others
 
 # Actions
 * Take up three tasks daily to start with to build confidence
