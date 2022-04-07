@@ -13,3 +13,8 @@ Leads to procrastination, confusion, doubts
 * Do something that scarers you
 * 30 days of committing to one Action
 * Apply five second rule - 4, 3, 2, 1
+
+# Action steps for toda
+* Do something taht scares you
+* reading 10 pages of a bok
+* Following a diet plan (of your own)
