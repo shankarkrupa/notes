@@ -6,6 +6,8 @@ Leads to procrastination, confusion, doubts
 
 * It is clever - it does not respond, it 
 * Run away from the tiger that wants to eat you, don't argue with it to not eat meat
+* Don't worry  about fear of rejection, be friendly with being uncomfortable
+* Ask out with courage!
 
 # Take action now
 * Do something that scarers you
